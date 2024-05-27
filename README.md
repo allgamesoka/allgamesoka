@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+meu nome é kauan
+
+agora estou estudando na alura, também estou me desenvolvendo na linguagem Javascript, e claro utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+
+se quiser pode entra em contato comigo📫
+
+kauanribeiroandarade123@gmail.com
+
+@kauanribeiroandrade123 🤓
